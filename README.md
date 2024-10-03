@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Srikantasaho0
-- 👀 I’m interested in Game Development
+- 👀 I’m interested in Game Development and App Development 
 - 🌱 I’m currently studing BTECH (CSE) 
 - 💞️ I’m looking to collaborate on my skill with a capable one
 - 📫 Reach me with via my social media
